@@ -5,7 +5,7 @@ Priceless Relics of the Spanish Armada
 
 **by ROBERT STENUIT**
 
-*Illustrations by National Geographic*
+**Illustrations by National Geographic**
 
 *Photographer Bates Lilttlehales*
 
